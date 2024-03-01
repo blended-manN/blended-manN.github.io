@@ -7,7 +7,7 @@ Over here, we like to explode the penises of our enemies, notably FreePeople, vi
 ## Penises Exploded
 1,200,378.9
 
-# Very Skibidi Games
+# Majestical Testical Games
 
 ## Games by Skibidi Rizlet
 ### Shoot Different Coloured Joshuas
