@@ -13,5 +13,5 @@ The best way to take out your anger of the Joshuas <br/>
 [Shoot Coloured Men](https://blended-mann.github.io/Shoot-Different-Coloured-Joshuas/)
 
 ### Gojo's Happiness
-Collect Gojo's Happiness so you can get as many backshots as possible while hunting the freshmen.
+Collect Gojo's Happiness so you can get as many backshots as possible while hunting the freshmen. <br/>
 [Gojo the Super Senior (Backshots Required)](https://blended-mann.github.io/GojosHappiness/)
