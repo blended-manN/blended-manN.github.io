@@ -3,3 +3,6 @@ Over here, we like to explode the penises of our enemies, notably FreePeople, vi
 
 ## Our Competitors
 ![](download.jpg)
+
+## Penises Exploded
+1,200,378.9
