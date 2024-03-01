@@ -11,7 +11,7 @@ Over here, we like to explode the penises of our enemies, notably FreePeople, vi
 
 ## Games by Skibidi Rizlet
 ### Shoot Different Coloured Joshuas
-The best way to take out your anger of the Joshuas <br/>
+The best way to take out your anger on the Joshuas <br/>
 [Shoot Coloured Men](https://blended-mann.github.io/Shoot-Different-Coloured-Joshuas/) ![](SkibidiFortniteGaySex.png)
 
 
