@@ -6,6 +6,7 @@ Over here, we like to explode the penises of our enemies, notably <span style="c
 ![](download.jpg)
 
 ## Penises Exploded
+<head>
 <script type = "text/javascript">
   var i = 1,200,689.547;
 
@@ -20,18 +21,20 @@ function penis(){
 
   document.getElementById("myText").innerHTML = number;
 }
-  
+
 
 
 
   
 </script>
-
+</head>
+<html>
 <body onload="penis()">
   
-  <h1> <span id="myText"></span> </h1>
+  <h2> <span id="myText"></span> </h2>
 
 </body>
+</html>
 
   
 
