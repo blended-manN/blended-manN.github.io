@@ -14,7 +14,26 @@ var interval = setInterval( increment, 1000);
 function increment(){
     i = i % 360 + 1;
 }
-  </script>
+
+function penis(){
+  var penis = String(i);
+
+  document.getElementById("myText").innerHTML = number;
+}
+  
+
+
+
+  
+</script>
+
+<body onload="penis()">
+  
+  <span id="myText"></span>
+
+</body>
+
+  
 
 ## Listen to our penis exploding lab audio <br/>
 <button id="btn" onclick="audio.play();"> Listen </button>
