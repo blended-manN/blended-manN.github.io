@@ -17,9 +17,8 @@ function increment(){
 }
 
 function penis(){
-  var penis = i.toFixed(3);
 
-  document.getElementById("myText").innerHTML = number;
+  document.getElementById("number").innerHTML = i;
 }
 
 
