@@ -1,6 +1,4 @@
-<head>
-   <link rel="shortcut icon" type="image/ico" href="favicon.ico">
-</head>
+
 
 # Why We Explode Penises Violently
 
