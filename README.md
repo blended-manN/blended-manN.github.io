@@ -7,32 +7,7 @@ Over here, we like to explode the penises of our enemies, notably <span style="c
 
 ## Penises Exploded
 
-<script type = "text/javascript">
-  var i = 1,200,689.547;
-
-var interval = setInterval( increment, 1000);
-
-function increment(){
-    i = i % 360 + 1;
-}
-
-function penis(){
-
-  document.getElementById("number").innerHTML = i;
-}
-
-
-
-
-  
-</script>
-<html>
-<body onload="penis()">
-  
-  <h2> <span id="myText"></span> </h2>
-
-</body>
-</html>
+1,200,789.267
 
   
 
