@@ -1,2 +1,4 @@
 theme: jekyll-theme-merlot
 title: Penises Exploding Violently
+plugins:
+  - jekyll-seo-tag
