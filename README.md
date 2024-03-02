@@ -20,5 +20,5 @@ Collect Gojo's Happiness so you can get as many backshots as possible while hunt
 [Gojo the Super Senior (Backshots Required)](https://blended-mann.github.io/GojosHappiness/) ![](image.png)
 
 ### Quest for Mac
-Collect the creamy, steamy, gooey mac and cheese from the evil badder Aiden.
-[Super Gooey Extra Creamy Yellow Stuff] (https://blended-mann.github.io/QuestForMac/)
+Collect the creamy, steamy, gooey mac and cheese from the evil badder Aiden. <br/>
+[Super Gooey Extra Creamy Yellow Stuff](https://blended-mann.github.io/QuestForMac/)
