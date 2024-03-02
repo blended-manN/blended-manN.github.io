@@ -29,7 +29,7 @@ function penis(){
 
 <body onload="penis()">
   
-  <span id="myText"></span>
+  <h1> <span id="myText"></span> </h1>
 
 </body>
 
