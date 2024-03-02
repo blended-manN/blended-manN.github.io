@@ -9,7 +9,10 @@ Over here, we like to explode the penises of our enemies, notably <span style="c
 **1,200,689.547**
 
 ## Listen to our penis exploding lab audio <br/>
-<button id="btn"> Listen </button>
+<button id="btn" onclick="audio.play();"> Listen </button>
+<script type = "text/javascript">
+  const audio = new Audio();
+  audio.src = "penisexplosionLab.mp3";
 
 # Majestical Testical Games
 
