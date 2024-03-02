@@ -8,7 +8,7 @@ Over here, we like to explode the penises of our enemies, notably <span style="c
 ## Penises Exploded
 **1,200,653.999**
 
-<span style="color:purple">Majestical Testical Games</span>
+#### Majestical Testical Games
 
 ## Games by Skibidi Rizlet
 ### Shoot Different Coloured Joshuas
