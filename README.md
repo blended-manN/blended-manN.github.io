@@ -6,7 +6,7 @@ Over here, we like to explode the penises of our enemies, notably <span style="c
 ![](download.jpg)
 
 ## Penises Exploded
-**1,200,653.999**
+**1,200,689.547**
 
 # Majestical Testical Games
 
