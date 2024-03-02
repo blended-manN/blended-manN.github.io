@@ -6,7 +6,15 @@ Over here, we like to explode the penises of our enemies, notably <span style="c
 ![](download.jpg)
 
 ## Penises Exploded
-**1,200,689.547**
+<script type = "text/javascript">
+  var i = 1,200,689.547;
+
+var interval = setInterval( increment, 1000);
+
+function increment(){
+    i = i % 360 + 1;
+}
+  </script>
 
 ## Listen to our penis exploding lab audio <br/>
 <button id="btn" onclick="audio.play();"> Listen </button>
