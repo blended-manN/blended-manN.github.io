@@ -1,6 +1,6 @@
 # Why We Explode Penises Violently
 
-Over here, we like to explode the penises of our enemies, notably <span style="color:red">Free People</span>., violently. This is punishment for going against Minor Miner LLC's best interests.
+Over here, we like to explode the penises of our enemies, notably <span style="color:red">Free People</span>, violently. This is punishment for going against Minor Miner LLC's best interests.
 
 ## Our Competitors
 ![](download.jpg)
@@ -8,7 +8,7 @@ Over here, we like to explode the penises of our enemies, notably <span style="c
 ## Penises Exploded
 **1,200,653.999**
 
-# Majestical Testical Games
+<span style="color:purple">Majestical Testical Games</span>
 
 ## Games by Skibidi Rizlet
 ### Shoot Different Coloured Joshuas
