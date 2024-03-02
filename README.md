@@ -13,6 +13,7 @@ Over here, we like to explode the penises of our enemies, notably <span style="c
 <script type = "text/javascript">
   const audio = new Audio();
   audio.src = "penisexplosionLab.mp3";
+</script>
 
 # Majestical Testical Games
 
@@ -39,3 +40,4 @@ Collect the creamy, steamy, gooey mac and cheese from the evil badder Aiden. <br
 ### Josh Gets Deported Demo
 #### WORK IN PROGRESS
 Help save Joshua in his mission to not get deported. Walls are very hard to climb after all.
+[Get Those Mexicans to Work](https://blended-mann.github.io/JoshGetsDeported/) 
