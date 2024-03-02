@@ -1,4 +1,6 @@
-<link rel="icon" type="image/x-icon" href="/images/weeewee.png">
+<head>
+  <link rel="icon" type="image/x-icon" href="/images/weeewee.png">
+</head>
 
 # Why We Explode Penises Violently
 
