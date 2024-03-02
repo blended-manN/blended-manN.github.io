@@ -22,3 +22,4 @@ Collect Gojo's Happiness so you can get as many backshots as possible while hunt
 ### Quest for Mac
 Collect the creamy, steamy, gooey mac and cheese from the evil badder Aiden. <br/>
 [Super Gooey Extra Creamy Yellow Stuff](https://blended-mann.github.io/QuestForMac/)
+![](image_2024-03-01_213830669.png)
