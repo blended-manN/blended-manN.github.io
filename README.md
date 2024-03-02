@@ -1,3 +1,7 @@
+<head>
+   <link rel="shortcut icon" type="image/ico" href="favicon.ico">
+</head>
+
 # Why We Explode Penises Violently
 
 Over here, we like to explode the penises of our enemies, notably <span style="color:red">Free People</span>, violently. This is punishment for going against Minor Miner LLC's best interests.
