@@ -19,3 +19,6 @@ The best way to take out your anger on the Joshuas <br/>
 Collect Gojo's Happiness so you can get as many backshots as possible while hunting the freshmen. <br/>
 [Gojo the Super Senior (Backshots Required)](https://blended-mann.github.io/GojosHappiness/) ![](image.png)
 
+### Quest for Mac
+Collect the creamy, steamy, gooey mac and cheese from the evil badder Aiden.
+[Super Gooey Extra Creamy Yellow Stuff] (https://blended-mann.github.io/QuestForMac/)
