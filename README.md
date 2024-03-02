@@ -12,7 +12,7 @@ Over here, we like to explode the penises of our enemies, notably FreePeople, vi
 ## Games by Skibidi Rizlet
 ### Shoot Different Coloured Joshuas
 #### New & Improved!
-**NOW YOU CAN KILL JOSHS MORE EFFICIENTLY**
+**NOW YOU CAN KILL JOSHS MORE EFFICIENTLY** <br/>
 The best way to take out your anger on the Joshuas <br/>
 [Shoot Coloured Men](https://blended-mann.github.io/Shoot-Different-Coloured-Joshuas/) ![](SkibidiFortniteGaySex.png)
 
