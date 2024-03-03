@@ -12,7 +12,7 @@ Over here, we like to explode the penises of our enemies, notably <span style="c
 
 <h3>
   <script>
-      increment();
+      increment(number);
       docWrite(number);
       </script>
 </h3>
