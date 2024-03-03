@@ -11,8 +11,9 @@ Over here, we like to explode the penises of our enemies, notably <span style="c
 1200789.267
 
 <h3>
-  <script type="text/javascript">
-        document.write(number)
+  <script>
+      increment();
+      docWrite(number);
       </script>
 </h3>
 
