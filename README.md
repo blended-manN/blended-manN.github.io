@@ -9,7 +9,9 @@ Over here, we like to explode the penises of our enemies, notably <span style="c
 
 ## Penises Exploded
 
-1,200,789.267
+<h3 onload="myFunction()">
+<span id="myText"></span>
+</h3>
 
   
 
