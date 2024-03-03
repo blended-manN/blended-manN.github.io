@@ -21,13 +21,17 @@
 {% seo %}
 
 {% include head-custom.html %}
-    <script type="text/javascript">
+    <script>
       var number = 1200789.267;
 
 var interval = setInterval( increment, 1000);
 
 function increment(){
     number = number % 360 + 5.673;
+}
+
+function docWrite(variable){
+  document.write(variable);
 }
 
       
