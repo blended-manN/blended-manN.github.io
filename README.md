@@ -12,9 +12,8 @@ Over here, we like to explode the penises of our enemies, notably <span style="c
 
 <h3>
   <script>
-      increment(number);
-      docWrite(number);
-      </script>
+   docWrite(number);
+  </script>
 </h3>
 
   
@@ -24,6 +23,7 @@ Over here, we like to explode the penises of our enemies, notably <span style="c
 <script type = "text/javascript">
   const audio = new Audio();
   audio.src = "penisexplosionLab.mp3";
+  increment(number);
 </script>
 
 # Majestical Testical Games
