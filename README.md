@@ -9,8 +9,10 @@ Over here, we like to explode the penises of our enemies, notably <span style="c
 
 ## Penises Exploded
 
-<h3 onload="myFunction()">
-<span id="myText"></span>
+<h3>
+  <script type="text/javascript">
+        document.write(number)
+      </script>
 </h3>
 
   
