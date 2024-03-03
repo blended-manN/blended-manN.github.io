@@ -24,7 +24,7 @@ Over here, we like to explode the penises of our enemies, notably <span style="c
   const audio = new Audio();
   audio.src = "penisexplosionLab.mp3";
   number += 5.673;
-  if (number > 1200789.267){
+  if (number &gt 1200789.267){
     log("penis");
   }
 </script>
