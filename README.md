@@ -53,3 +53,34 @@ Collect the creamy, steamy, gooey mac and cheese from the evil badder Aiden. <br
 Help save Joshua in his mission to not get deported. Walls are very hard to climb after all. <br/>
 [Get Those Mexicans to Work](https://blended-mann.github.io/JoshGetsDeported/) 
 ![](image_2024-03-02_170049970.png)
+
+# Quote Book
+## From the Founder of Minor Miner
+*If you ain't Jorkin' It, You ain't Workin' it* <br/>
+*Minor Miner LLC is Best Company*
+*Fogel 2032*
+# Josh from Josh's House
+*Gobutilalmbd* <br/>
+*Boobies are great (said in Moist Critical Voice)* <br/>
+*I want to Kiss White Boy* <br/>
+*Where's My Batteries* <br/>
+*Don't quote me but I have a Bigger Dumpy than George Washington*
+
+# White Boy
+*Josh's House* <br/>
+*Flashlight, not Fleshlight* <br/>
+*I'd rather be a Racist than a Rapist* <br/>
+*What is Skibidi doing?! (followed by deepthroating noises)*
+
+# Skibidi Rizzlet
+*I love Ding Dings* <br/>
+*I'm having a massive Poopy all over the Walls*
+<br/>
+*My Butt is Jiggling* <br/>
+*Truly*
+
+# Original Minor
+*I love Hentai*
+
+# Minor Miner Enthusiast
+*WHAT'S UP SON' BITCHES! TODAY WE'RE GONNA BE SHITTING IN A WALMART URINAL. this video is sponsored by FeetFinder*
