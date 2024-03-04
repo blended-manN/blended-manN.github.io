@@ -76,7 +76,8 @@ Help save Joshua in his mission to not get deported. Walls are very hard to clim
 *If She ain't a model r34 Car then she ain't thicc enough. Always choose the OnlyFans girls as your girlfriend*<br/>
 *Get your Head in the Game, Stop being a Beta Mail, Disrespect Women and make them Want you. Escape the Matrix and become One with the Sigma. Buy my Online Course now to Become a Top G*<br/>
 *If the Hentai/Porn doesnt have the Wiggly Worm move, then immediately click off because the Paw Patrol Porn is probably better anyways* <br/>(Note from Me: I hope he was talking about Aged Up.)<br/>
-*9/11 is the Best Holiday of all terrorist groups. It celebrates the day where we made a breakthrough in Terrorism and where we all Jerk Off to Skyscraper Porn in celebration.*
+*9/11 is the Best Holiday of all terrorist groups. It celebrates the day where we made a breakthrough in Terrorism and where we all Jerk Off to Skyscraper Porn in celebration.* <br/>
+*Sex is not Real. It's just an Illusion created by BETA MALES and WOMEN to make you Think you need it. Escape the Matrix and Stay Single with my Course.
 
 
 # Skibidi Rizzlet
@@ -84,7 +85,9 @@ Help save Joshua in his mission to not get deported. Walls are very hard to clim
 *I'm having a massive Poopy all over the Walls*
 <br/>
 *My Butt is Jiggling* <br/>
-*Truly*
+*Truly* <br/>
+*I AM the Mewing Master*
+*I'm cumming, I'm sorry, there's nothing You can do to STOP ME*
 
 # Original Minor
 *I love Hentai*
