@@ -62,7 +62,8 @@ Help save Joshua in his mission to not get deported. Walls are very hard to clim
 *I Jerk Off to Furry Hentai and Vtubers* <br/>
 *Even if I didn't found Minor Miner, Fogel would have. It's a Canon Event, We have Seen the Alternate Timelines*<br/>
 *NOT ANOTHER QUOTE WHITEBOY! NOT ANOTHER ONE*<br/>
-*I'M NOT ADDING ANOTHER QUOTE! WHY ARE YOU TYPING!!*
+*I'M NOT ADDING ANOTHER QUOTE! WHY ARE YOU TYPING!!*<br/>
+*i dont like minor miner im quitting it<br/>
 
 # Josh from Josh's House
 *Gobutilalmbd* <br/>
