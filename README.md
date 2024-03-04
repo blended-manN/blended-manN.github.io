@@ -75,7 +75,7 @@ Help save Joshua in his mission to not get deported. Walls are very hard to clim
 *What is Skibidi doing?! Put that back down! Oh My God Why is it Growing! (followed by deepthroating noises)* <br/>
 *If She ain't a model r34 Car then she ain't thicc enough. Always choose the OnlyFans girls as your girlfriend*<br/>
 *Get your Head in the Game, Stop being a Beta Mail, Disrespect Women and make them Want you. Escape the Matrix and become One with the Sigma. Buy my Online Course now to Become a Top G*<br/>
-*If the Hentai/Porn doesnt have the Wiggly Worm move, then immediately click off because the Paw Patrol Porn is probably better anyways* I hope he was talking about Aged Up.
+*If the Hentai/Porn doesnt have the Wiggly Worm move, then immediately click off because the Paw Patrol Porn is probably better anyways* <br/>(Note from Me: I hope he was talking about Aged Up.)
 
 # Skibidi Rizzlet
 *I love Ding Dings* <br/>
