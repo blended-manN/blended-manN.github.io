@@ -79,7 +79,7 @@ Help save Joshua in his mission to not get deported. Walls are very hard to clim
 *Get your Head in the Game, Stop being a Beta Mail, Disrespect Women and make them Want you. Escape the Matrix and become One with the Sigma. Buy my Online Course now to Become a Top G*<br/>
 *If the Hentai/Porn doesnt have the Wiggly Worm move, then immediately click off because the Paw Patrol Porn is probably better anyways* <br/>(Note from Me: I hope he was talking about Aged Up.)<br/>
 *9/11 is the Best Holiday of all terrorist groups. It celebrates the day where we made a breakthrough in Terrorism and where we all Jerk Off to Skyscraper Porn in celebration.* <br/>
-*Sex is not Real. It's just an Illusion created by BETA MALES and WOMEN to make you Think you need it. Escape the Matrix and Stay Single with my Course.<br/>
+*Sex is not Real. It's just an Illusion created by BETA MALES and WOMEN to make you Think you need it. Escape the Matrix and Stay Single with my Course.* <br/>
 *The Color White is Superior to Black because White stands out in Everything. Black on the other Hand Blend in to Disgusting Poop and Black Tar.* <br/>
 *If you dont own a Lamborgini in 2024 then you are not making Money Correctly. Money is so easy to make Nowadays. If you want to be Rich like me then buy my Cheap 15,000 dollar course to be on the track to my wealth.*<br/>
 *I Jerk Off to Roblox r15* <br/>
