@@ -62,7 +62,8 @@ Help save Joshua in his mission to not get deported. Walls are very hard to clim
 *I Jerk Off to Furry Hentai and Vtubers* <br/>
 *Even if I didn't found Minor Miner, Fogel would have. It's a Canon Event, We have Seen the Alternate Timelines*<br/>
 *NOT ANOTHER QUOTE WHITEBOY! NOT ANOTHER ONE*<br/>
-*I'M NOT ADDING ANOTHER QUOTE! WHY ARE YOU TYPING!!*
+*I'M NOT ADDING ANOTHER QUOTE! WHY ARE YOU TYPING!!*<br/>
+*I Don't Like Minor Miner I'm Quitting It* (This was said as Satire, Minor Miner LLC loves all of its Employees and all of them Love It.<br/>
 
 # Josh from Josh's House
 *Gobutilalmbd* <br/>
@@ -79,14 +80,15 @@ Help save Joshua in his mission to not get deported. Walls are very hard to clim
 *What is Skibidi doing?! Put that back down! Oh My God Why is it Growing! (followed by deepthroating noises)* <br/>
 *If She ain't a model r34 Car then she ain't thicc enough. Always choose the OnlyFans girls as your girlfriend*<br/>
 *Get your Head in the Game, Stop being a Beta Mail, Disrespect Women and make them Want you. Escape the Matrix and become One with the Sigma. Buy my Online Course now to Become a Top G*<br/>
-*If the Hentai/Porn doesnt have the Wiggly Worm move, then immediately click off because the Paw Patrol Porn is probably better anyways* <br/>(Note from Me: I hope he was talking about Aged Up.)<br/>
+*If the Hentai/Porn doesnt have the Wiggly Worm move, then immediately click off because the Paw Patrol Porn is probably better anyways* <br/>(Note from Me: I hope he was talking about Aged Up.)<br/> [RESPONSE REDACTED]<br/>
 *9/11 is the Best Holiday of all terrorist groups. It celebrates the day where we made a breakthrough in Terrorism and where we all Jerk Off to Skyscraper Porn in celebration.* <br/>
 *Sex is not Real. It's just an Illusion created by BETA MALES and WOMEN to make you Think you need it. Escape the Matrix and Stay Single with my Course.* <br/>
 *The Color White is Superior to Black because White stands out in Everything. Black on the other Hand Blend in to Disgusting Poop and Black Tar.* <br/>
 *If you dont own a Lamborgini in 2024 then you are not making Money Correctly. Money is so easy to make Nowadays. If you want to be Rich like me then buy my Cheap 15,000 dollar course to be on the track to my wealth.*<br/>
 *I Jerk Off to Roblox r15* <br/>
 *My Tummy Hurts from Eating so much Candy & 💩* <br/>
-*The more the Lanky your Box is, the Harder youll Cum Inside of Women
+*The more the Lanky your Box is, the Harder youll Cum Inside of Women*
+*My Favourite Youtube Video: * https://hentaihaven.com/overflow
 
 # Skibidi Rizzlet
 *I love Ding Dings* <br/>
