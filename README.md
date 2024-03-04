@@ -60,15 +60,17 @@ Help save Joshua in his mission to not get deported. Walls are very hard to clim
 *Minor Miner LLC is Best Company*
 <br/>*Fogel 2032*<br/>
 *I Jerk Off to Furry Hentai and Vtubers* <br/>
-*Even if I didn't found Minor Miner, Fogel would have. It's a Canon Event, We have Seen the Alternate Timelines*
+*Even if I didn't found Minor Miner, Fogel would have. It's a Canon Event, We have Seen the Alternate Timelines*<br/>
+*NOT ANOTHER QUOTE WHITEBOY! NOT ANOTHER ONE*
 # Josh from Josh's House
 *Gobutilalmbd* <br/>
 *Boobies are great (said in Moist Critical Voice)* <br/>
 *I want to Kiss White Boy* <br/>
 *Where's My Batteries* <br/>
 *Don't quote me but I have a Bigger Dumpy than George Washington*
+*I'M NOT ADDING ANOTHER QUOTE! WHY ARE YOU TYPING!!*
 
-# White Boy
+# White Boy (Andrew Tate Jr.)
 *Josh's House* <br/>
 *Flashlight, not Fleshlight* <br/>
 *I'd rather be a Racist than a Rapist* <br/>
@@ -77,8 +79,11 @@ Help save Joshua in his mission to not get deported. Walls are very hard to clim
 *Get your Head in the Game, Stop being a Beta Mail, Disrespect Women and make them Want you. Escape the Matrix and become One with the Sigma. Buy my Online Course now to Become a Top G*<br/>
 *If the Hentai/Porn doesnt have the Wiggly Worm move, then immediately click off because the Paw Patrol Porn is probably better anyways* <br/>(Note from Me: I hope he was talking about Aged Up.)<br/>
 *9/11 is the Best Holiday of all terrorist groups. It celebrates the day where we made a breakthrough in Terrorism and where we all Jerk Off to Skyscraper Porn in celebration.* <br/>
-*Sex is not Real. It's just an Illusion created by BETA MALES and WOMEN to make you Think you need it. Escape the Matrix and Stay Single with my Course.
-
+*Sex is not Real. It's just an Illusion created by BETA MALES and WOMEN to make you Think you need it. Escape the Matrix and Stay Single with my Course.<br/>
+*The Color White is Superior to Black because White stands out in Everything. Black on the other Hand Blend in to Disgusting Poop and Black Tar.* <br/>
+*If you dont own a Lamborgini in 2024 then you are not making Money Correctly. Money is so easy to make Nowadays. If you want to be Rich like me then buy my Cheap 15,000 dollar course to be on the track to my wealth.*<br/>
+*I Jerk Off to Roblox r15* <br/>
+*My Tummy Hurts from Eating so much Candy 💩*
 
 # Skibidi Rizzlet
 *I love Ding Dings* <br/>
