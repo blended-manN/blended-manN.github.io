@@ -58,7 +58,9 @@ Help save Joshua in his mission to not get deported. Walls are very hard to clim
 # From the Founder of Minor Miner
 *If you ain't Jorkin' It, You ain't Workin' it* <br/>
 *Minor Miner LLC is Best Company*
-<br/>*Fogel 2032*
+<br/>*Fogel 2032*<br/>
+*I Jerk Off to Furry Hentai and Vtubers* <br/>
+*Even if I didn't found Minor Miner, Fogel would have. It's a Canon Event, We have Seen the Alternate Timelines*
 # Josh from Josh's House
 *Gobutilalmbd* <br/>
 *Boobies are great (said in Moist Critical Voice)* <br/>
@@ -70,7 +72,9 @@ Help save Joshua in his mission to not get deported. Walls are very hard to clim
 *Josh's House* <br/>
 *Flashlight, not Fleshlight* <br/>
 *I'd rather be a Racist than a Rapist* <br/>
-*What is Skibidi doing?! (followed by deepthroating noises)*
+*What is Skibidi doing?! Put that back down! Oh My God Why is it Growing! (followed by deepthroating noises)* <br/>
+*If She ain't a model r34 Car then she ain't thicc enough. Always choose the OnlyFans girls as your girlfriend*<br/>
+*Get your Head in the Game, Stop being a Beta Mail, Disrespect Women and make them Want you. Escape the Matrix and become One with the Sigma. Buy my Online Course now to Become a Top G*
 
 # Skibidi Rizzlet
 *I love Ding Dings* <br/>
