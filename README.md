@@ -61,14 +61,16 @@ Help save Joshua in his mission to not get deported. Walls are very hard to clim
 <br/>*Fogel 2032*<br/>
 *I Jerk Off to Furry Hentai and Vtubers* <br/>
 *Even if I didn't found Minor Miner, Fogel would have. It's a Canon Event, We have Seen the Alternate Timelines*<br/>
-*NOT ANOTHER QUOTE WHITEBOY! NOT ANOTHER ONE*
+*NOT ANOTHER QUOTE WHITEBOY! NOT ANOTHER ONE*<br/>
+*I'M NOT ADDING ANOTHER QUOTE! WHY ARE YOU TYPING!!*
+
 # Josh from Josh's House
 *Gobutilalmbd* <br/>
 *Boobies are great (said in Moist Critical Voice)* <br/>
 *I want to Kiss White Boy* <br/>
 *Where's My Batteries* <br/>
 *Don't quote me but I have a Bigger Dumpy than George Washington*
-*I'M NOT ADDING ANOTHER QUOTE! WHY ARE YOU TYPING!!*
+
 
 # White Boy (Andrew Tate Jr.)
 *Josh's House* <br/>
