@@ -58,7 +58,7 @@ Help save Joshua in his mission to not get deported. Walls are very hard to clim
 ## From the Founder of Minor Miner
 *If you ain't Jorkin' It, You ain't Workin' it* <br/>
 *Minor Miner LLC is Best Company*
-*Fogel 2032*
+<br/>*Fogel 2032*
 # Josh from Josh's House
 *Gobutilalmbd* <br/>
 *Boobies are great (said in Moist Critical Voice)* <br/>
