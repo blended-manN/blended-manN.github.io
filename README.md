@@ -87,7 +87,8 @@ Help save Joshua in his mission to not get deported. Walls are very hard to clim
 *If you dont own a Lamborgini in 2024 then you are not making Money Correctly. Money is so easy to make Nowadays. If you want to be Rich like me then buy my Cheap 15,000 dollar course to be on the track to my wealth.*<br/>
 *I Jerk Off to Roblox r15* <br/>
 *My Tummy Hurts from Eating so much Candy & 💩* <br/>
-*The more the Lanky your Box is, the Harder youll Cum Inside of Women
+*The more the Lanky your Box is, the Harder youll Cum Inside of Women* <br/>
+*My Friend has the "Drake Snake" Video and I am asking him to Send It so I can Figure out What it is*
 
 # Skibidi Rizzlet
 *I love Ding Dings* <br/>
