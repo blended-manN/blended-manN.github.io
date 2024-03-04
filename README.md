@@ -63,7 +63,9 @@ Help save Joshua in his mission to not get deported. Walls are very hard to clim
 *Even if I didn't found Minor Miner, Fogel would have. It's a Canon Event, We have Seen the Alternate Timelines*<br/>
 *NOT ANOTHER QUOTE WHITEBOY! NOT ANOTHER ONE*<br/>
 *I'M NOT ADDING ANOTHER QUOTE! WHY ARE YOU TYPING!!*<br/>
-*I don't Like Minor Miner I'm Quitting It*<br/> (Whoever Quoted Minor Miner Founder with Saying this has been "*terminated*")
+*I don't Like Minor Miner I'm Quitting It*<br/> (Whoever Quoted Minor Miner Founder with Saying this has been "*terminated*")<br/>
+*I love Minors*<br/>
+*You got the Circumcised one this Time*
 
 # Josh from Josh's House
 *Gobutilalmbd* <br/>
@@ -97,7 +99,8 @@ Help save Joshua in his mission to not get deported. Walls are very hard to clim
 *My Butt is Jiggling* <br/>
 *Truly* <br/>
 *I AM the Mewing Master*<br/>
-*I'm cumming, I'm sorry, there's nothing You can do to STOP ME*
+*I'm cumming, I'm sorry, there's nothing You can do to STOP ME*<br/>
+*I Just want some Meat in my Mouth*
 
 # Original Minor
 *I love Hentai*
