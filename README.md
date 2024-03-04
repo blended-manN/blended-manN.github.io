@@ -55,7 +55,7 @@ Help save Joshua in his mission to not get deported. Walls are very hard to clim
 ![](image_2024-03-02_170049970.png)
 
 # Quote Book
-## From the Founder of Minor Miner
+# From the Founder of Minor Miner
 *If you ain't Jorkin' It, You ain't Workin' it* <br/>
 *Minor Miner LLC is Best Company*
 <br/>*Fogel 2032*
