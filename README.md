@@ -65,7 +65,8 @@ Help save Joshua in his mission to not get deported. Walls are very hard to clim
 *I'M NOT ADDING ANOTHER QUOTE! WHY ARE YOU TYPING!!*<br/>
 *I don't Like Minor Miner I'm Quitting It*<br/> (Whoever Quoted Minor Miner Founder with Saying this has been "*terminated*")<br/>
 *I love Minors*<br/>
-*You got the Circumcised one this Time*
+*You got the Circumcised one this Time* <br/>
+*Did you just Send the DRAKE SNAKE Video?*
 
 # Josh from Josh's House
 *Gobutilalmbd* <br/>
@@ -91,6 +92,8 @@ Help save Joshua in his mission to not get deported. Walls are very hard to clim
 *My Tummy Hurts from Eating so much Candy & 💩* <br/>
 *The more the Lanky your Box is, the Harder youll Cum Inside of Women* <br/>
 *My Friend has the "Drake Snake" Video and I am asking him to Send It so I can Figure out What it is*
+<br/>
+*He finally Sent it, but he Sent it in the Family Friendly Chat*
 
 # Skibidi Rizzlet
 *I love Ding Dings* <br/>
