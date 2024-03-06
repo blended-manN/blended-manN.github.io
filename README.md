@@ -48,11 +48,10 @@ Collect the creamy, steamy, gooey mac and cheese from the evil badder Aiden. <br
 ## Games by Minor Miner Entertainment
 <span title="Ahh very nice">Company Motto</span>
 <div class="tenor-gif-embed" data-postid="16992979615419717731" data-share-method="host" data-aspect-ratio="0.7" data-width="40%"><a href="https://tenor.com/view/sukuna-jujutsu-kaisen-sukuna-laughing-gif-16992979615419717731">Sukuna Jujutsu Kaisen GIF</a>from <a href="https://tenor.com/search/sukuna-gifs">Sukuna GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
-### Josh Gets Deported Demo
-#### WORK IN PROGRESS
+### Josh Gets Deported
 Help save Joshua in his mission to not get deported. Walls are very hard to climb after all. <br/>
-[Get Those Mexicans to Work](https://blended-mann.github.io/JoshGetsDeported/) 
-![](image_2024-03-02_170049970.png)
+[Get Those Mexicans to Work](https://blended-mann.github.io/JoshGetsDeported/) <br/>
+![](image_2024-03-05_200429397.png)
 
 # Quote Book
 # From the Founder of Minor Miner
