@@ -74,7 +74,9 @@ Help save Joshua in his mission to not get deported. Walls are very hard to clim
 *Where's My Batteries* <br/>
 *Don't quote me but I have a Bigger Dumpy than George Washington*<br/>
 *You cannot be talking, I saw you watching Rascal Does not Dream of Bunny Girl Senpai. Your bedsheets were probably stained white that Night.* <br/>
-*Oh my Skibidi, I just Busted a Fat Nut all over the Place.*
+*Oh my Skibidi, I just Busted a Fat Nut all over the Place.* <br/>
+*Every Time I Nut Atlantis Tectonic plates move, I'm the reason*  <br/>
+
 
 
 # White Boy (Andrew Tate Jr.)
@@ -105,7 +107,8 @@ Help save Joshua in his mission to not get deported. Walls are very hard to clim
 *Truly* <br/>
 *I AM the Mewing Master*<br/>
 *I'm cumming, I'm sorry, there's nothing You can do to STOP ME*<br/>
-*I Just want some Meat in my Mouth*
+*I Just want some Meat in my Mouth* <br/>
+*I've Gyat to Go, I just need to Play Josh Gets Deported*
 
 # Original Minor
 *I love Hentai*
