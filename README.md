@@ -73,7 +73,8 @@ Help save Joshua in his mission to not get deported. Walls are very hard to clim
 *I want to Kiss White Boy* <br/>
 *Where's My Batteries* <br/>
 *Don't quote me but I have a Bigger Dumpy than George Washington*<br/>
-*You cannot be talking, I saw you watching Rascal Does not Dream of Bunny Girl Senpai. Your bedsheets were probably stained white that Night.*
+*You cannot be talking, I saw you watching Rascal Does not Dream of Bunny Girl Senpai. Your bedsheets were probably stained white that Night.* <br/>
+*Oh my Skibidi, I just Busted a Fat Nut all over the Place.*
 
 
 # White Boy (Andrew Tate Jr.)
