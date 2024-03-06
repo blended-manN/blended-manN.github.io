@@ -97,7 +97,8 @@ Help save Joshua in his mission to not get deported. Walls are very hard to clim
 *My Friend has the "Drake Snake" Video and I am asking him to Send It so I can Figure out What it is*
 <br/>
 *He finally Sent it, but he Sent it in the Family Friendly Chat* <br/>
-*Siege does not require any Skill*
+*Siege does not require any Skill* <br/>
+*I love it when the Josh Sludge climes all over Me* 
 
 # Skibidi Rizzlet
 *I love Ding Dings* <br/>
