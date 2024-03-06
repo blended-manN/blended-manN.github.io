@@ -72,7 +72,8 @@ Help save Joshua in his mission to not get deported. Walls are very hard to clim
 *Boobies are great (said in Moist Critical Voice)* <br/>
 *I want to Kiss White Boy* <br/>
 *Where's My Batteries* <br/>
-*Don't quote me but I have a Bigger Dumpy than George Washington*
+*Don't quote me but I have a Bigger Dumpy than George Washington*<br/>
+*You cannot be talking, I saw you watching Rascal Does not Dream of Bunny Girl Senpai. Your bedsheets were probably stained white that Night.*
 
 
 # White Boy (Andrew Tate Jr.)
@@ -92,7 +93,8 @@ Help save Joshua in his mission to not get deported. Walls are very hard to clim
 *The more the Lanky your Box is, the Harder youll Cum Inside of Women* <br/>
 *My Friend has the "Drake Snake" Video and I am asking him to Send It so I can Figure out What it is*
 <br/>
-*He finally Sent it, but he Sent it in the Family Friendly Chat*
+*He finally Sent it, but he Sent it in the Family Friendly Chat* <br/>
+*Siege does not require any Skill*
 
 # Skibidi Rizzlet
 *I love Ding Dings* <br/>
