@@ -46,7 +46,7 @@ Collect the creamy, steamy, gooey mac and cheese from the evil badder Aiden. <br
 ![](image_2024-03-01_213830669.png)
 
 ## Games by Minor Miner Entertainment
-<span title="Ahh very nice">Company Motto</span>
+<span title="Ahh very nice"> <center>Company</center> Motto</span>
 <div class="tenor-gif-embed" data-postid="16992979615419717731" data-share-method="host" data-aspect-ratio="0.7" data-width="40%"><a href="https://tenor.com/view/sukuna-jujutsu-kaisen-sukuna-laughing-gif-16992979615419717731">Sukuna Jujutsu Kaisen GIF</a>from <a href="https://tenor.com/search/sukuna-gifs">Sukuna GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
 ### Josh Gets Deported
 Help save Joshua in his mission to not get deported. Walls are very hard to climb after all. <br/>
