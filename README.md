@@ -76,7 +76,8 @@ Help save Joshua in his mission to not get deported. Walls are very hard to clim
 *You cannot be talking, I saw you watching Rascal Does not Dream of Bunny Girl Senpai. Your bedsheets were probably stained white that Night.* <br/>
 *Oh my Skibidi, I just Busted a Fat Nut all over the Place.* <br/>
 *Every Time I Nut Atlantis Tectonic plates move, I'm the reason*  <br/>
-*I'm gonna Fire in your Hole*
+*I'm gonna Fire in your Hole* <br/>
+*I'm literally stalking someone [...] but he noticed me too quickly* 
 
 
 
