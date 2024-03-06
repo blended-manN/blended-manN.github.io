@@ -114,7 +114,8 @@ Help save Joshua in his mission to not get deported. Walls are very hard to clim
 *I've Gyat to Go, I just need to Play Josh Gets Deported*
 
 # Original Minor
-*I love Hentai*
+*I love Hentai* <br/>
+*They took it off me*
 
 # Minor Miner Enthusiast
 *WHAT'S UP SON' BITCHES! TODAY WE'RE GONNA BE SHITTING IN A WALMART URINAL. this video is sponsored by FeetFinder*
