@@ -1,4 +1,4 @@
-
+var number = 1;
 
 # Why We Explode Penises Violently
 
@@ -121,4 +121,4 @@ Help save Joshua in his mission to not get deported. Walls are very hard to clim
 *WHAT'S UP SON' BITCHES! TODAY WE'RE GONNA BE SHITTING IN A WALMART URINAL. this video is sponsored by FeetFinder*
 
 #### Secret Area
-wow you found the end of the website pls wipe poop on a wall for confirmation goodbye
+wow you found the end of the website pls wipe poop on a wall for confirmation goodbye sammy
