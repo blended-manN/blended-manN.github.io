@@ -118,7 +118,8 @@ Help save Joshua in his mission to not get deported. Walls are very hard to clim
 *They took it off me*
 
 # Minor Miner Enthusiast
-*WHAT'S UP SON' BITCHES! TODAY WE'RE GONNA BE SHITTING IN A WALMART URINAL. this video is sponsored by FeetFinder*
+*WHAT'S UP SON' BITCHES! TODAY WE'RE GONNA BE SHITTING IN A WALMART URINAL. this video is sponsored by FeetFinder* <br/>
+*Those fingers are Fingering*
 
 #### Secret Area
 wow you found the end of the website pls wipe poop on a wall for confirmation goodbye sammy
