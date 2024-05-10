@@ -45,7 +45,7 @@ Collect the creamy, steamy, gooey mac and cheese from the evil badder Aiden. <br
 [Super Gooey Extra Creamy Yellow Stuff](https://blended-mann.github.io/QuestForMac/)
 ![](image_2024-03-01_213830669.png)
 
-#Folicle Battle
+### Folicle Battle
 Fight to the Death as our Lord and Saviour watches.
 [![Folicle Battle](Folicle.png 'Praise our Lord and Saviour')](https://cr33p0z.github.io/folliclebattle/)
 
