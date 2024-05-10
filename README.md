@@ -1,4 +1,4 @@
-var number = 1;
+
 
 # Why We Explode Penises Violently
 
@@ -44,6 +44,10 @@ Collect Gojo's Happiness so you can get as many backshots as possible while hunt
 Collect the creamy, steamy, gooey mac and cheese from the evil badder Aiden. <br/>
 [Super Gooey Extra Creamy Yellow Stuff](https://blended-mann.github.io/QuestForMac/)
 ![](image_2024-03-01_213830669.png)
+
+#Folicle Battle
+Fight to the Death as our Lord and Saviour watches.
+[![Folicle Battle](Folicle.png 'Praise our Lord and Saviour')](https://cr33p0z.github.io/folliclebattle/)
 
 ## Games by Minor Miner Entertainment
 <span title="Ahh very nice"> <center>Company Motto</center></span>
