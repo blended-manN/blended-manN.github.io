@@ -8,15 +8,7 @@ Over here, we like to explode the penises of our enemies, notably <span style="c
 ![](download.jpg)
 
 ## Penises Exploded
-1200789.267
-<!---
-<h3>
-  <script>
-   docWrite(number);
-  </script>
-</h3>
---->
-
+12283648.2529
   
 
 ## Listen to our penis exploding lab audio <br/>
@@ -34,16 +26,16 @@ Over here, we like to explode the penises of our enemies, notably <span style="c
 #### NEW AND IMPROVED!
 **NOW YOU CAN KILL JOSHS MORE EFFICIENTLY** <br/>
 The best way to take out your anger on the Joshuas <br/>
-![[Shoot Coloured Men](SkibidiFortniteGaySex.png)](https://blended-mann.github.io/Shoot-Different-Coloured-Joshuas/)
+[![Shoot Coloured Men](SkibidiFortniteGaySex.png)](https://blended-mann.github.io/Shoot-Different-Coloured-Joshuas/)
 
 
 ### Gojo's Happiness
 Collect Gojo's Happiness so you can get as many backshots as possible while hunting the freshmen. <br/>
-![[Gojo the Super Senior (Backshots Required)](image.png)](https://blended-mann.github.io/GojosHappiness/) 
+[![Gojo the Super Senior (Backshots Required)](image.png)](https://blended-mann.github.io/GojosHappiness/) 
 
 ### Quest for Mac
 Collect the creamy, steamy, gooey mac and cheese from the evil badder Aiden. <br/>
-![[Super Gooey Extra Creamy Yellow Stuff](image_2024-03-01_213830669.png)](https://blended-mann.github.io/QuestForMac/)
+[![Super Gooey Extra Creamy Yellow Stuff](image_2024-03-01_213830669.png)](https://blended-mann.github.io/QuestForMac/)
 
 ### Folicle Battle
 Fight to the Death as our Lord and Saviour watches.
@@ -56,7 +48,7 @@ Fight to the Death as our Lord and Saviour watches.
 --->
 ### Josh Gets Deported
 Help save Joshua in his mission to not get deported. Walls are very hard to climb after all. <br/>
-![[Get Those Mexicans to Work](image_2024-03-05_200429397.png)](https://blended-mann.github.io/JoshGetsDeported/) <br/>
+[![Get Those Mexicans to Work](image_2024-03-05_200429397.png)](https://blended-mann.github.io/JoshGetsDeported/) <br/>
 
 # Quote Book
 # From the Founder of Minor Miner
