@@ -121,3 +121,6 @@ Help save Joshua in his mission to not get deported. Walls are very hard to clim
 
 #### Secret Area
 wow you found the end of the website pls wipe poop on a wall for confirmation goodbye sammy
+<br/>
+
+[![Middle Click for Calculator](image_2024-07-22_001136334.png)](calculator://)
